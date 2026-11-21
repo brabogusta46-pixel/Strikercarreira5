@@ -1,2 +1,0 @@
-# Strikercarreira5
-Strike
